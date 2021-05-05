@@ -12,7 +12,7 @@ Set in a glass container with a loose lid in a warm place (~27°C) for around 7-
 ## Dough
 - 230g of room temperature water
 - All of the poolish
-- 2g of dry yeast
+- 6g of dry yeast
 - 250g of [bread flour](https://www.myllynparas.fi/tuotteet/emannan-puolikarkea-vehnajauho-2-kg) (~13% of protein)
 - 100g of [Tipo 00 flour](https://www.molinorossetto.com/en/maxi-pack/1790-farina-tipo-00.html) with ~10% of protein.
 - 50g of [whole wheat flour](https://myllarin.fi/tuote/myllarin-luomu-taysjyvavehnajauho-1-kg/)
