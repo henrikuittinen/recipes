@@ -4,7 +4,7 @@ This is me documenting the actual amounts, temperature and times I use to make t
 
 ## Poolish
 - 150g room temp water
-- 1 ml of [dry yeast](https://sunnuntai.fi/tuotteet/sunnuntai-kuivahiiva)
+- 1g of [dry yeast](https://sunnuntai.fi/tuotteet/sunnuntai-kuivahiiva)
 - 150g [Tipo 00 flour](https://www.molinorossetto.com/en/maxi-pack/1790-farina-tipo-00.html) with ~10% of protein.
 
 Set in a glass container with a loose lid in a warm place (~27°C) for around 7-12 hours.
