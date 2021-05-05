@@ -10,7 +10,7 @@ This is me documenting the actual amounts, temperature and times I use to make t
 Set in a glass container with a loose lid in a warm place (~27°C) for around 7-12 hours.
 
 ## Dough
-- 280g of warm water (37°C)
+- 230g of room temperature water
 - All of the poolish
 - 2g of dry yeast
 - 250g of [bread flour](https://www.myllynparas.fi/tuotteet/emannan-puolikarkea-vehnajauho-2-kg) (~13% of protein)
