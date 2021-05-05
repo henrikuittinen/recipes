@@ -4,6 +4,7 @@
 - 4 dl of apple cider vinegar (6%)
 - 1.5 dl of sugar
 - 1 dl of salt
+- Seasoning
 
 Combine everything, bring to boil and let simmer for 15 minutes. Add a few jamaica peppers and other aromatics of your liking.
 
