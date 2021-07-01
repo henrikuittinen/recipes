@@ -2,7 +2,7 @@
 
 - 1.6 liters of water
 - 4 dl of apple cider vinegar (6%)
-- 1.5 dl of sugar
+- 0.75 dl of sugar
 - 1 dl of salt
 - Seasoning
 
